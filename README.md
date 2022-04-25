@@ -1,3 +1,0 @@
-# hyeondooh.github.io
-
-jdospaghapoghdfas
